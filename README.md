@@ -1,6 +1,6 @@
-# THE WEALTH OF NATIONS I - IX
+# THE ACQUISITIVE SOCIETY
 
-ADAM SMITH
+R. H. TAWNEY
 
 This ebook is the product of many hours of hard work by volunteers for Standard Ebooks, and builds on the hard work of other literature lovers made possible by the public domain.
 
